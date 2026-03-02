@@ -6,3 +6,5 @@ finn folder
 
 
 ![Screenshot 2026-02-28 123133](https://github.com/user-attachments/assets/051d06f9-ead0-4651-8647-940334b6424a)
+
+![Screenshot 2026-03-01 225733](https://github.com/user-attachments/assets/c449a6df-4887-40a3-b424-8de261bb3d51)
