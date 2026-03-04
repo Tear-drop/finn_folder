@@ -8,3 +8,4 @@ finn folder
 ![Screenshot 2026-02-28 123133](https://github.com/user-attachments/assets/051d06f9-ead0-4651-8647-940334b6424a)
 
 ![Screenshot 2026-03-01 225733](https://github.com/user-attachments/assets/c449a6df-4887-40a3-b424-8de261bb3d51)
+![Screenshot 2026-03-03 174725](https://github.com/user-attachments/assets/84b8ec1a-83af-4968-8948-d3b9dab0137b)
